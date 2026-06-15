@@ -1,4 +1,4 @@
-## Hi there just another guy born to hack on the planet 👋
+## Hi there just another guy droped to hack on the planet 👋
 
 Here are some ideas to get you started:
 
