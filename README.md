@@ -1,8 +1,8 @@
-👋 Hi there just another guy droped to hack on the planet Earth 🌍🌱
+👋 Hi there,just another guy dropped to hack on the planet Earth 🌍🌱
 
-Here are some ideas to get you started:
+Here are some ideas about to know me:
 
--🔭 I’m currently working on Cyber security.
+-🔭 I’m currently online on The Internt.
 - 🌱 I’m currently learning on any Tech solutoin.
 - 👯 I’m looking to collaborate on any technology stack.
 - 🤔 I’m looking for help with collaboration.
